@@ -3,7 +3,7 @@
 Welcome to **Destinade Tech Solutions**, where we build the future with the best technology. Visit us at [destinade.com](https://destinade.com).
 
 ## About Us
-At Destinade, we specialize in adapting companies to the newest technologies that 2025 has to offer. Our goal is to increase revenue, cut operating and employee training costs, and provide innovative solutions tailored to your business needs. We pride ourselves on offering free consultations, brilliant client service, affordable pricing, and dedicated support.
+At Destinade, we specialize in adapting companies to the newest technologies that 2026 has to offer. Our goal is to increase revenue, cut operating and employee training costs, and provide innovative solutions tailored to your business needs. We pride ourselves on offering free consultations, brilliant client service, affordable pricing, and dedicated support.
 
 ## Services
 We offer a wide selection of services to save you time and alleviate the worries of operating a company:
